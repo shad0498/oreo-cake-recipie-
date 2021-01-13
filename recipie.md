@@ -16,7 +16,7 @@
 
 9-keep the container in the oven for 5 minutes for baking
 
-10-after 5 mins open the oven put a tooth pick into cake and remove it if the tooth pick comes out clearly then your cake is baked if not then keep your cake into the oven again for two mins
+10- after 5 mins open the oven pierce a tooth pick into cake and remove it if the tooth pick comes out clearly then your cake is baked if not then keep your cake into the oven again for two mins
 
 11-remove the container from the oven 
 
@@ -24,7 +24,7 @@
 
 13-when its cold loosen it from all sides with the help of knife
 
-14-take a a plane plate and rotate the container on it 
+14-take a plane plate and rotate the container on it and remove the container slowely 
 
 
 AND YOUR OREO CAKE IS READY
